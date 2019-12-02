@@ -1,5 +1,5 @@
-## Ms. B's Ideal Afternoon
+## Ms. Yovani Ideal Afternoon
 
-The best way to relax after a long day is to play video games or watch Netflix.
+The best way to relax after a long day is to just to play video games 
 
-The best ice cream is vanilla with Oreos in it.
+and just play and eat all by yourself
