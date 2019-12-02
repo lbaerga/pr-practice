@@ -1,4 +1,4 @@
-## Ms. B's Ideal Afternoon
+## Jenny's Ideal Afternoon
 
 The best way to relax after a long day is to play sleep and eat.
 
