@@ -1,5 +1,5 @@
-## Ms. B's Ideal Afternoon
+## Lizzy's Ideal Afternoon
 
-The best way to relax after a long day is to play video games or watch Netflix.
+The best way to relax after a long day is to eat your favorite snacks and take a nap afterwards.
 
-The best ice cream is vanilla with Oreos in it.
+The best drink is Snapple.
