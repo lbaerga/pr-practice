@@ -1,4 +1,4 @@
-## Ms. B's Ideal Afternoon
+## Salma's afternoon
 
 The best way to relax after a long day is to munch on food and sleep. 
 
